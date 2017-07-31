@@ -1,0 +1,2 @@
+# Potansiyel-muamma
+Gerek yok 
